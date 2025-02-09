@@ -1,1 +1,1 @@
-# Exito Me Proposito
+Alcanzar exitos es me proposito.
